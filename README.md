@@ -1,1 +1,1 @@
-it justs i learn python :V
+👉 "I'm just learning Python. 😆"
